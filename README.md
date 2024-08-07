@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a second-year student majoring in Software Engineering in Universiti Teknologi Malaysia.<br>
+I am a third-year student majoring in Software Engineering in Universiti Teknologi Malaysia.<br>
 
 
 ## 🌐 Socials:
